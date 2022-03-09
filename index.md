@@ -8,11 +8,9 @@
 
 ## 目录：
 
-### [2022-01th-03th](htmlpreview.GitHub.io/?———https://github.com/FTMMaoGe/2020-12th.git)
+### [2022-01th-03th](htmlpreview.GitHub.io/?https://github.com/FTMMaoGe/2020-12th.git)
 
 ### 2021-8th-12th
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
 
 ### 2021-1th-7th
 
