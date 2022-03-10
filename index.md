@@ -6,7 +6,7 @@
 
 2019年5月11日成立，是国内首个仅关注FTX/FTM兄弟需求的机构。为其提供商业服务改善群体现状，议题包括不限于同伴支持、商业合作、社群培力、公众教育等。（兄弟：FTX+FTM）
 
- ![Image](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/demood/blob/gh-pages/640.jpg)
+ ![Image](https://github.com/FTMMaoGe/demood/blob/gh-pages/640.jpg)
 
 ## 2022-01th-03th：
 
@@ -259,7 +259,7 @@
 
 [2021-05-27 推广- “黑皮猪”健身课程正在火热进行中！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-05-27%20%E6%8E%A8%E5%B9%BF-%20%E2%80%9C%E9%BB%91%E7%9A%AE%E7%8C%AA%E2%80%9D%E5%81%A5%E8%BA%AB%E8%AF%BE%E7%A8%8B%E6%AD%A3%E5%9C%A8%E7%81%AB%E7%83%AD%E8%BF%9B%E8%A1%8C%E4%B8%AD%EF%BC%81.html)
 
-[2021-05-26广州线下活动延期] - .html" data-pjax="#repo-content-pjax-container" href="/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-05-26%E5%B9%BF%E5%B7%9E%E7%BA%BF%E4%B8%8B%E6%B4%BB%E5%8A%A8%E5%BB%B6%E6%9C%9F.html)
+[2021-05-26广州线下活动延期](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-05-26%E5%B9%BF%E5%B7%9E%E7%BA%BF%E4%B8%8B%E6%B4%BB%E5%8A%A8%E5%BB%B6%E6%9C%9F.html)
 
 [2021-05-21 兄弟刊 -我想用这次失败的平胸故事提醒兄弟们注意](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-05-21%20%E5%85%84%E5%BC%9F%E5%88%8A%20-%E6%88%91%E6%83%B3%E7%94%A8%E8%BF%99%E6%AC%A1%E5%A4%B1%E8%B4%A5%E7%9A%84%E5%B9%B3%E8%83%B8%E6%95%85%E4%BA%8B%E6%8F%90%E9%86%92%E5%85%84%E5%BC%9F%E4%BB%AC%E6%B3%A8%E6%84%8F.html)
 
