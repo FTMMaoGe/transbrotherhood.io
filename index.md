@@ -8,7 +8,7 @@
 
 ## 2022-01th-03th：
 
-[2022-03-08 传播图文组采编招募](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-03-08%20%E4%BC%A0%E6%92%AD%E5%9B%BE%E6%96%87%E7%BB%84%E9%87%87%E7%BC%96%E6%8B%9B%E5%8B%9F.html)
+[2022-03-08 飞天猫兄弟盟传播图文组采编招募](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-03-08%20%E4%BC%A0%E6%92%AD%E5%9B%BE%E6%96%87%E7%BB%84%E9%87%87%E7%BC%96%E6%8B%9B%E5%8B%9F.html)
 
 [2022-03-06 飞天猫兄弟盟喵星电波电台招募](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-03-06%20%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%E5%96%B5%E6%98%9F%E7%94%B5%E6%B3%A2%E7%94%B5%E5%8F%B0%E6%8B%9B%E5%8B%9F.html)
 
@@ -169,7 +169,7 @@
 
 [2021-09-11 兄弟刊 - 我们连续打了半个小时，意犹未尽](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-09-11%20%E5%85%84%E5%BC%9F%E5%88%8A%20-%20%E6%88%91%E4%BB%AC%E8%BF%9E%E7%BB%AD%E6%89%93%E4%BA%86%E5%8D%8A%E4%B8%AA%E5%B0%8F%E6%97%B6%EF%BC%8C%E6%84%8F%E7%8A%B9%E6%9C%AA%E5%B0%BD.html) 
     
-[2021-09-17 伪音大佬线上教学盟](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-09-17%20%E4%BC%AA%E9%9F%B3%E5%A4%A7%E4%BD%AC%E7%BA%BF%E4%B8%8A%E6%95%99%E5%AD%A6.html)
+[2021-09-17 伪音大佬线上教学](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-09-17%20%E4%BC%AA%E9%9F%B3%E5%A4%A7%E4%BD%AC%E7%BA%BF%E4%B8%8A%E6%95%99%E5%AD%A6.html)
 
 [2021-09-07 中秋特刊征稿](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-09-07%20%E4%B8%AD%E7%A7%8B%E7%89%B9%E5%88%8A%E5%BE%81%E7%A8%BF.html)
 
