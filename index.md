@@ -7,6 +7,21 @@
 2019年5月11日成立，是国内首个仅关注FTX/FTM兄弟需求的机构。为其提供商业服务改善群体现状，议题包括不限于同伴支持、商业合作、社群培力、公众教育等。（兄弟：FTX+FTM）
 
 ## 2022-01th-03th：
+
+[2022-03-24 疯狂星期四！快来领头像框2.0！](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/%E7%96%AF%E7%8B%82%E6%98%9F%E6%9C%9F%E5%9B%9B%EF%BC%81%E5%BF%AB%E6%9D%A5%E9%A2%86%E5%A4%B4%E5%83%8F%E6%A1%862.0%EF%BC%81.html)
+
+[2022-03-23 “他在干嘛？！”](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/%E2%80%9C%E4%BB%96%E5%9C%A8%E5%B9%B2%E5%98%9B%EF%BC%9F%EF%BC%81%E2%80%9D.html)
+
+[2022-03-19 有人骂我们卖娘炮女装给直男](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/%E6%9C%89%E4%BA%BA%E9%AA%82%E6%88%91%E4%BB%AC%E5%8D%96%E5%A8%98%E7%82%AE%E5%A5%B3%E8%A3%85%E7%BB%99%E7%9B%B4%E7%94%B7.html)
+
+[2022-03-18 这是可以换的吗？可以！-头像框领取](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/%E8%BF%99%E6%98%AF%E5%8F%AF%E4%BB%A5%E6%8D%A2%E7%9A%84%E5%90%97%EF%BC%9F%E5%8F%AF%E4%BB%A5%EF%BC%81-%E5%A4%B4%E5%83%8F%E6%A1%86%E9%A2%86%E5%8F%96.html)
+
+[2022-03-18 嘿兄弟！你知道“兄弟”吗？-征集](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/%E5%98%BF%E5%85%84%E5%BC%9F%EF%BC%81%E4%BD%A0%E7%9F%A5%E9%81%93%E2%80%9C%E5%85%84%E5%BC%9F%E2%80%9D%E5%90%97%EF%BC%9F-%E5%BE%81%E9%9B%86.html)
+
+[2022-03-16 跨性别专属头像框，领取倒计时！-特推](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/%E8%B7%A8%E6%80%A7%E5%88%AB%E4%B8%93%E5%B1%9E%E5%A4%B4%E5%83%8F%E6%A1%86%EF%BC%8C%E9%A2%86%E5%8F%96%E5%80%92%E8%AE%A1%E6%97%B6%EF%BC%81-%E7%89%B9%E6%8E%A8.html)
+
+[2022-03-12 飞天猫兄弟盟传播图文组排版招募](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/12%20%20%E6%8E%92%E7%89%88.html)
+
 [2022-03-10 飞天猫兄弟盟传播图文组画师招募](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/10%20%E7%94%BB%E5%B8%88.html)
 
 [2022-03-08 飞天猫兄弟盟传播图文组采编招募](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-03-08%20%E4%BC%A0%E6%92%AD%E5%9B%BE%E6%96%87%E7%BB%84%E9%87%87%E7%BC%96%E6%8B%9B%E5%8B%9F.html)
