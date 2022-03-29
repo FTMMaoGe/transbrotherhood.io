@@ -7,7 +7,7 @@
 2019年5月11日成立，是国内首个仅关注FTX/FTM兄弟需求的机构。为其提供商业服务改善群体现状，议题包括不限于同伴支持、商业合作、社群培力、公众教育等。（兄弟：FTX+FTM）
 
 ## 2022-01th-03th：
-
+/transbrotherhood/2022-01th-03th/blob/main/10%20%E7%94%BB%E5%B8%88.html
 [2022-03-08 飞天猫兄弟盟传播图文组采编招募](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-03-08%20%E4%BC%A0%E6%92%AD%E5%9B%BE%E6%96%87%E7%BB%84%E9%87%87%E7%BC%96%E6%8B%9B%E5%8B%9F.html)
 
 [2022-03-06 飞天猫兄弟盟喵星电波电台招募](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-03-06%20%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%E5%96%B5%E6%98%9F%E7%94%B5%E6%B3%A2%E7%94%B5%E5%8F%B0%E6%8B%9B%E5%8B%9F.html)
