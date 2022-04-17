@@ -6,23 +6,40 @@
 
 2019年5月11日成立，是国内首个仅关注FTX/FTM兄弟需求的机构。为其提供商业服务改善群体现状，议题包括不限于同伴支持、商业合作、社群培力、公众教育等。（兄弟：FTX+FTM）
 
-## 2022-01th-03th：
+## 年度合集：
+[2020年度合集](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-04th-08th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-03-29%20%E4%BD%A0%E6%83%B3%E9%97%AE%E7%9A%84%E5%85%84%E5%BC%9F%E7%9B%9F%E9%83%BD%E6%9C%89%20-%202020%E5%90%88%E9%9B%86.html)
 
-[2022-03-24 疯狂星期四！快来领头像框2.0！](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/%E7%96%AF%E7%8B%82%E6%98%9F%E6%9C%9F%E5%9B%9B%EF%BC%81%E5%BF%AB%E6%9D%A5%E9%A2%86%E5%A4%B4%E5%83%8F%E6%A1%862.0%EF%BC%81.html)
+[2021年度合集](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-01-29%20%E4%B8%80%E9%94%AE%E5%8D%B3%E5%8F%AF%E4%BA%86%E8%A7%A3%E5%85%84%E5%BC%9F%E7%9B%9F%E8%BF%99%E4%B8%80%E5%B9%B4%20-%202021%E5%90%88%E9%9B%86.html)
 
-[2022-03-23 “他在干嘛？！”](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/%E2%80%9C%E4%BB%96%E5%9C%A8%E5%B9%B2%E5%98%9B%EF%BC%9F%EF%BC%81%E2%80%9D.html)
+## 2022-01th-07th：
 
-[2022-03-19 有人骂我们卖娘炮女装给直男](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/%E6%9C%89%E4%BA%BA%E9%AA%82%E6%88%91%E4%BB%AC%E5%8D%96%E5%A8%98%E7%82%AE%E5%A5%B3%E8%A3%85%E7%BB%99%E7%9B%B4%E7%94%B7.html)
+[ 2022-04-15 春天来了，又到了-的季节？-兄弟沙龙28](https://htmlpreview.github.io//?https://github.com//FTMMaoGe/2022-04th-08th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-04-15%20%E6%98%A5%E5%A4%A9%E6%9D%A5%E4%BA%86%EF%BC%8C%E5%8F%88%E5%88%B0%E4%BA%86_____%E7%9A%84%E5%AD%A3%E8%8A%82%EF%BC%9F-%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9928.html)
 
-[2022-03-18 这是可以换的吗？可以！-头像框领取](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/%E8%BF%99%E6%98%AF%E5%8F%AF%E4%BB%A5%E6%8D%A2%E7%9A%84%E5%90%97%EF%BC%9F%E5%8F%AF%E4%BB%A5%EF%BC%81-%E5%A4%B4%E5%83%8F%E6%A1%86%E9%A2%86%E5%8F%96.html)
+[2022-04-13 猫哥！我希望你变成这样- 征集](https://htmlpreview.github.io//?https://github.com//FTMMaoGe/2022-04th-08th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-04-13%20%E7%8C%AB%E5%93%A5%EF%BC%81%E6%88%91%E5%B8%8C%E6%9C%9B%E4%BD%A0%E5%8F%98%E6%88%90%E8%BF%99%E6%A0%B7%20-%20%E5%BE%81%E9%9B%86.html)
 
-[2022-03-18 嘿兄弟！你知道“兄弟”吗？-征集](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/%E5%98%BF%E5%85%84%E5%BC%9F%EF%BC%81%E4%BD%A0%E7%9F%A5%E9%81%93%E2%80%9C%E5%85%84%E5%BC%9F%E2%80%9D%E5%90%97%EF%BC%9F-%E5%BE%81%E9%9B%86.html)
+[2022-04-02 特推-淘宝店铺开业，助力兄弟群体就业！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-04th-08th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-04-02%20%E7%89%B9%E6%8E%A8-%E6%B7%98%E5%AE%9D%E5%BA%97%E9%93%BA%E5%BC%80%E4%B8%9A%EF%BC%8C%E5%8A%A9%E5%8A%9B%E5%85%84%E5%BC%9F%E7%BE%A4%E4%BD%93%E5%B0%B1%E4%B8%9A%EF%BC%81.html)
 
-[2022-03-16 跨性别专属头像框，领取倒计时！-特推](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/%E8%B7%A8%E6%80%A7%E5%88%AB%E4%B8%93%E5%B1%9E%E5%A4%B4%E5%83%8F%E6%A1%86%EF%BC%8C%E9%A2%86%E5%8F%96%E5%80%92%E8%AE%A1%E6%97%B6%EF%BC%81-%E7%89%B9%E6%8E%A8.html)
+[2022-03-31 首个跨性别兄弟群像纪录片开拍啦！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-04th-08th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-03-31%20%E9%A6%96%E4%B8%AA%E8%B7%A8%E6%80%A7%E5%88%AB%E5%85%84%E5%BC%9F%E7%BE%A4%E5%83%8F%E7%BA%AA%E5%BD%95%E7%89%87%E5%BC%80%E6%8B%8D%E5%95%A6%EF%BC%81-%E7%8E%B0%E8%BA%AB%E6%97%A5%E7%89%B9%E6%8E%A8.html)
 
-[2022-03-12 飞天猫兄弟盟传播图文组排版招募](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/12%20%20%E6%8E%92%E7%89%88.html)
+[2022-03-30 肝不动题目了，直接看视频吧](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-04th-08th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-03-30%20%E8%82%9D%E4%B8%8D%E5%8A%A8%E9%A2%98%E7%9B%AE%E4%BA%86%EF%BC%8C%E7%9B%B4%E6%8E%A5%E7%9C%8B%E8%A7%86%E9%A2%91%E5%90%A7.html)
 
-[2022-03-10 飞天猫兄弟盟传播图文组画师招募](https://htmlpreview.github.io//?https://github.com/transbrotherhood/2022-01th-03th/blob/main/10%20%E7%94%BB%E5%B8%88.html)
+[2022-03-30 肝不动题目了，直接看头像框吧](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-04th-08th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-03-30%20%E8%82%9D%E4%B8%8D%E5%8A%A8%E9%A2%98%E7%9B%AE%E4%BA%86%EF%BC%8C%E7%9B%B4%E6%8E%A5%E7%9C%8B%E5%A4%B4%E5%83%8F%E6%A1%86%E5%90%A7.html)
+
+[2022-03-24 疯狂星期四！快来领头像框2.0！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-04th-08th/blob/main/2022-03-24%20%E7%96%AF%E7%8B%82%E6%98%9F%E6%9C%9F%E5%9B%9B%EF%BC%81%E5%BF%AB%E6%9D%A5%E9%A2%86%E5%A4%B4%E5%83%8F%E6%A1%862.0%EF%BC%81.html)
+
+[2022-03-23 “他在干嘛？！”](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-04th-08th/blob/main/2022-03-23%20%E2%80%9C%E4%BB%96%E5%9C%A8%E5%B9%B2%E5%98%9B%EF%BC%9F%EF%BC%81%E2%80%9D.html)
+
+[2022-03-19 有人骂我们卖娘炮女装给直男](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-04th-08th/blob/main/%E6%9C%89%E4%BA%BA%E9%AA%82%E6%88%91%E4%BB%AC%E5%8D%96%E5%A8%98%E7%82%AE%E5%A5%B3%E8%A3%85%E7%BB%99%E7%9B%B4%E7%94%B7.html)
+
+[2022-03-18 这是可以换的吗？可以！-头像框领取](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-04th-08th/blob/main/%E8%BF%99%E6%98%AF%E5%8F%AF%E4%BB%A5%E6%8D%A2%E7%9A%84%E5%90%97%EF%BC%9F%E5%8F%AF%E4%BB%A5%EF%BC%81-%E5%A4%B4%E5%83%8F%E6%A1%86%E9%A2%86%E5%8F%96.htm)
+
+[2022-03-18 嘿兄弟！你知道“兄弟”吗？-征集](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-04th-08th/blob/main/%E5%98%BF%E5%85%84%E5%BC%9F%EF%BC%81%E4%BD%A0%E7%9F%A5%E9%81%93%E2%80%9C%E5%85%84%E5%BC%9F%E2%80%9D%E5%90%97%EF%BC%9F-%E5%BE%81%E9%9B%86.html)
+
+[2022-03-16 跨性别专属头像框，领取倒计时！-特推](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-04th-08th/blob/main/%E8%B7%A8%E6%80%A7%E5%88%AB%E4%B8%93%E5%B1%9E%E5%A4%B4%E5%83%8F%E6%A1%86%EF%BC%8C%E9%A2%86%E5%8F%96%E5%80%92%E8%AE%A1%E6%97%B6%EF%BC%81-%E7%89%B9%E6%8E%A8.html)
+
+[2022-03-12 飞天猫兄弟盟传播图文组排版招募](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-04th-08th/blob/main/12%20%20%E6%8E%92%E7%89%88.html)
+
+[2022-03-10 飞天猫兄弟盟传播图文组画师招募](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-04th-08th/blob/main/10%20%E7%94%BB%E5%B8%88.html)
 
 [2022-03-08 飞天猫兄弟盟传播图文组采编招募](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-03-08%20%E4%BC%A0%E6%92%AD%E5%9B%BE%E6%96%87%E7%BB%84%E9%87%87%E7%BC%96%E6%8B%9B%E5%8B%9F.html)
 
@@ -33,8 +50,6 @@
 [ 2022-03-02 飞天猫兄弟盟社群招募](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-03-02%20%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%E7%A4%BE%E7%BE%A4%E6%8B%9B%E5%8B%9F.html)
 
 [ 2022-02-25 跨性别去病化后](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-02-25%20%E8%B7%A8%E6%80%A7%E5%88%AB%E5%8E%BB%E7%97%85%E5%8C%96%E5%90%8E%EF%BC%8C%E5%85%84%E5%BC%9F%E4%BB%AC%E6%B8%B4%E6%9C%9B%20-%E7%8C%AB%E5%93%A5%E4%BF%A1%E7%AE%B18.html)         
-
-[2022-02-22 「成都跨性别小组」创办宣言：让六色的彩虹旗多染上一层蓝粉白色-转发](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-02-22%20%E3%80%8C%E6%88%90%E9%83%BD%E8%B7%A8%E6%80%A7%E5%88%AB%E5%B0%8F%E7%BB%84%E3%80%8D%E5%88%9B%E5%8A%9E%E5%AE%A3%E8%A8%80%EF%BC%9A%E8%AE%A9%E5%85%AD%E8%89%B2%E7%9A%84%E5%BD%A9%E8%99%B9%E6%97%97%E5%A4%9A%E6%9F%93%E4%B8%8A%E4%B8%80%E5%B1%82%E8%93%9D%E7%B2%89%E7%99%BD%E8%89%B2-%E8%BD%AC%E5%8F%91.html)
 
 [2022-02-13 《最潮招募预警！》](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-02-13%20%E3%80%8A%E6%9C%80%E6%BD%AE%E6%8B%9B%E5%8B%9F%E9%A2%84%E8%AD%A6%EF%BC%81%E3%80%8B.html)
 
@@ -51,8 +66,6 @@
 [2022-01-31 2022春节新篇章](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-01-31%202022%E6%98%A5%E8%8A%82%E6%96%B0%E7%AF%87%E7%AB%A0.html)
 
 [ 2022-01-30 破万的MV音乐会创作大分享！- 沙龙回顾27](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-01-30%20%E7%A0%B4%E4%B8%87%E7%9A%84MV%E9%9F%B3%E4%B9%90%E4%BC%9A%E5%88%9B%E4%BD%9C%E5%A4%A7%E5%88%86%E4%BA%AB%EF%BC%81-%20%E6%B2%99%E9%BE%99%E5%9B%9E%E9%A1%BE27.html)
-
-[2022-01-29 一键即可了解兄弟盟这一年 - 2021合集](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-01-29%20%E4%B8%80%E9%94%AE%E5%8D%B3%E5%8F%AF%E4%BA%86%E8%A7%A3%E5%85%84%E5%BC%9F%E7%9B%9F%E8%BF%99%E4%B8%80%E5%B9%B4%20-%202021%E5%90%88%E9%9B%86.html)
 
 [2022-01-26 究竟是什么美食让兄弟流口水？- 猫哥信箱8](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-01-26%20%E7%A9%B6%E7%AB%9F%E6%98%AF%E4%BB%80%E4%B9%88%E7%BE%8E%E9%A3%9F%E8%AE%A9%E5%85%84%E5%BC%9F%E6%B5%81%E5%8F%A3%E6%B0%B4%EF%BC%9F-%20%E7%8C%AB%E5%93%A5%E4%BF%A1%E7%AE%B18.html)
 
@@ -122,7 +135,6 @@
 
 [2021-12-05 调研 -焦虑、压力、抑郁的缠绕，何时能休？](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-12-05%20%E8%B0%83%E7%A0%94%20-%E7%84%A6%E8%99%91%E3%80%81%E5%8E%8B%E5%8A%9B%E3%80%81%E6%8A%91%E9%83%81%E7%9A%84%E7%BC%A0%E7%BB%95%EF%BC%8C%E4%BD%95%E6%97%B6%E8%83%BD%E4%BC%91%EF%BC%9F.html)
 
-
 [2021-11-30 唧唧一堂｜反暴力16日，一起来看电影吧！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-11-30%20%E5%94%A7%E5%94%A7%E4%B8%80%E5%A0%82%EF%BD%9C%E5%8F%8D%E6%9A%B4%E5%8A%9B16%E6%97%A5%EF%BC%8C%E4%B8%80%E8%B5%B7%E6%9D%A5%E7%9C%8B%E7%94%B5%E5%BD%B1%E5%90%A7%EF%BC%81.html)
 
 [2021-11-29 转发｜再谈跨性别者的厕所与相关问题](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-11-29%20%E8%BD%AC%E5%8F%91%EF%BD%9C%E5%86%8D%E8%B0%88%E8%B7%A8%E6%80%A7%E5%88%AB%E8%80%85%E7%9A%84%E5%8E%95%E6%89%80%E4%B8%8E%E7%9B%B8%E5%85%B3%E9%97%AE%E9%A2%98.html)
@@ -131,8 +143,8 @@
 
 [2021-11-25 唧唧回顾｜北京.Gay吧一夜，ta们后悔了](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-11-25%20%E5%94%A7%E5%94%A7%E5%9B%9E%E9%A1%BE%EF%BD%9C%E5%8C%97%E4%BA%AC.Gay%E5%90%A7%E4%B8%80%E5%A4%9C%EF%BC%8Cta%E4%BB%AC%E5%90%8E%E6%82%94%E4%BA%86.html)
 
-
 [2021-11-21 兄弟沙龙25｜兄弟和伴侣的秘密照片在这里~](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-11-21%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9925%EF%BD%9C%E5%85%84%E5%BC%9F%E5%92%8C%E4%BC%B4%E4%BE%A3%E7%9A%84%E7%A7%98%E5%AF%86%E7%85%A7%E7%89%87%E5%9C%A8%E8%BF%99%E9%87%8C%7E.html)
+
 [2021-11-20 特刊 - 关在女子监狱的男人](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-11-20%20%E7%89%B9%E5%88%8A%20-%20%E5%85%B3%E5%9C%A8%E5%A5%B3%E5%AD%90%E7%9B%91%E7%8B%B1%E7%9A%84%E7%94%B7%E4%BA%BA.html)
 
 [2021-11-19 猫哥信箱-那些被表白的奇葩经历](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-11-19%20%E7%8C%AB%E5%93%A5%E4%BF%A1%E7%AE%B1-%E9%82%A3%E4%BA%9B%E8%A2%AB%E8%A1%A8%E7%99%BD%E7%9A%84%E5%A5%87%E8%91%A9%E7%BB%8F%E5%8E%86.html)
@@ -235,6 +247,7 @@
 [2021-07-21 线上心理会客室](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-07-21%20%E7%BA%BF%E4%B8%8A%E5%BF%83%E7%90%86%E4%BC%9A%E5%AE%A2%E5%AE%A4.html)
 
 [2021-07-16 兄弟刊 - 我们很特别，但我们不是异类——十四岁的蜕变](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-07-16%20%E5%85%84%E5%BC%9F%E5%88%8A%20-%20%E6%88%91%E4%BB%AC%E5%BE%88%E7%89%B9%E5%88%AB%EF%BC%8C%E4%BD%86%E6%88%91%E4%BB%AC%E4%B8%8D%E6%98%AF%E5%BC%82%E7%B1%BB%E2%80%94%E2%80%94%E5%8D%81%E5%9B%9B%E5%B2%81%E7%9A%84%E8%9C%95%E5%8F%98.html)
+
 [2021-07-12 反击 - 到处污蔑各家医院以及公益，请您做个人！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-07-12%20%E5%8F%8D%E5%87%BB%20-%20%E5%88%B0%E5%A4%84%E6%B1%A1%E8%94%91%E5%90%84%E5%AE%B6%E5%8C%BB%E9%99%A2%E4%BB%A5%E5%8F%8A%E5%85%AC%E7%9B%8A%EF%BC%8C%E8%AF%B7%E6%82%A8%E5%81%9A%E4%B8%AA%E4%BA%BA%EF%BC%81.html)
 
 [2021-07-09 兄弟刊-在看不到光的那一段时间她送了我四个字——泪尽则喜](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-07-09%20%E5%85%84%E5%BC%9F%E5%88%8A-%E5%9C%A8%E7%9C%8B%E4%B8%8D%E5%88%B0%E5%85%89%E7%9A%84%E9%82%A3%E4%B8%80%E6%AE%B5%E6%97%B6%E9%97%B4%E5%A5%B9%E9%80%81%E4%BA%86%E6%88%91%E5%9B%9B%E4%B8%AA%E5%AD%97%E2%80%94%E2%80%94%E6%B3%AA%E5%B0%BD%E5%88%99%E5%96%9C.html)
@@ -246,6 +259,7 @@
 [2021-07-06 兄弟沙龙22-线上心理：多点关“心”多点爱](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-07-06%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9922-%E7%BA%BF%E4%B8%8A%E5%BF%83%E7%90%86%EF%BC%9A%E5%A4%9A%E7%82%B9%E5%85%B3%E2%80%9C%E5%BF%83%E2%80%9D%E5%A4%9A%E7%82%B9%E7%88%B1.html) 
 
 [2021-07-04 推广-郑州刺青师入驻兄弟盟，手稿设计&amp;amp;刺青皆享特价！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-07-04%20%E6%8E%A8%E5%B9%BF-%E9%83%91%E5%B7%9E%E5%88%BA%E9%9D%92%E5%B8%88%E5%85%A5%E9%A9%BB%E5%85%84%E5%BC%9F%E7%9B%9F%EF%BC%8C%E6%89%8B%E7%A8%BF%E8%AE%BE%E8%AE%A1%26amp%3B%E5%88%BA%E9%9D%92%E7%9A%86%E4%BA%AB%E7%89%B9%E4%BB%B7%EF%BC%81.html)
+
 [2021-07-02 兄弟刊-看到我的真容，他大哭……](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-07-02%20%E5%85%84%E5%BC%9F%E5%88%8A-%E7%9C%8B%E5%88%B0%E6%88%91%E7%9A%84%E7%9C%9F%E5%AE%B9%EF%BC%8C%E4%BB%96%E5%A4%A7%E5%93%AD%E2%80%A6%E2%80%A6.html)
 
 [2021-06-29 转发-跨性别反暴力手册发布](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-06-29%20%E8%BD%AC%E5%8F%91-%E8%B7%A8%E6%80%A7%E5%88%AB%E5%8F%8D%E6%9A%B4%E5%8A%9B%E6%89%8B%E5%86%8C%E5%8F%91%E5%B8%83.html)
@@ -257,6 +271,7 @@
 [2021-06-18 兄弟刊 - Yolo：我感叹着社会对于男女性别的双标](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-06-18%20%E5%85%84%E5%BC%9F%E5%88%8A%20-%20Yolo%EF%BC%9A%E6%88%91%E6%84%9F%E5%8F%B9%E7%9D%80%E7%A4%BE%E4%BC%9A%E5%AF%B9%E4%BA%8E%E7%94%B7%E5%A5%B3%E6%80%A7%E5%88%AB%E7%9A%84%E5%8F%8C%E6%A0%87.html)
 
 [2021-06-15 兄弟沙龙21 - 来聊聊那些让你深刻记忆的彩虹电影~](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-06-15%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9921%20-%20%E6%9D%A5%E8%81%8A%E8%81%8A%E9%82%A3%E4%BA%9B%E8%AE%A9%E4%BD%A0%E6%B7%B1%E5%88%BB%E8%AE%B0%E5%BF%86%E7%9A%84%E5%BD%A9%E8%99%B9%E7%94%B5%E5%BD%B1%7E.html)
+
 [2021-06-11 兄弟刊-FTM的我，上对了厕所是什么感受？](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-06-11%20%E5%85%84%E5%BC%9F%E5%88%8A-FTM%E7%9A%84%E6%88%91%EF%BC%8C%E4%B8%8A%E5%AF%B9%E4%BA%86%E5%8E%95%E6%89%80%E6%98%AF%E4%BB%80%E4%B9%88%E6%84%9F%E5%8F%97%EF%BC%9F.html)
 
 [2021-06-09 征集-跨性别兄弟：非异性恋故事](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-06-09%20%E5%BE%81%E9%9B%86-%E8%B7%A8%E6%80%A7%E5%88%AB%E5%85%84%E5%BC%9F%EF%BC%9A%E9%9D%9E%E5%BC%82%E6%80%A7%E6%81%8B%E6%95%85%E4%BA%8B.html)
@@ -281,13 +296,12 @@
 
 [2021-05-18 作为跨儿，我好想爱这个世界](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-05-18%20%E4%BD%9C%E4%B8%BA%E8%B7%A8%E5%84%BF%EF%BC%8C%E6%88%91%E5%A5%BD%E6%83%B3%E7%88%B1%E8%BF%99%E4%B8%AA%E4%B8%96%E7%95%8C.html)
 
-
 [2021-05-17 国际不恐同不恐跨日](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-05-17%20%E5%9B%BD%E9%99%85%E4%B8%8D%E6%81%90%E5%90%8C%E4%B8%8D%E6%81%90%E8%B7%A8%E6%97%A5.html)
-
 
 [2021-05-11 特推 - 兄弟盟两岁，寄语给所爱的家人们](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-05-11%20%E7%89%B9%E6%8E%A8%20-%20%E5%85%84%E5%BC%9F%E7%9B%9F%E4%B8%A4%E5%B2%81%EF%BC%8C%E5%AF%84%E8%AF%AD%E7%BB%99%E6%89%80%E7%88%B1%E7%9A%84%E5%AE%B6%E4%BA%BA%E4%BB%AC.html)
 
 [2021-05-09 推广- 减肥？老猪给你做线上健身私教！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-05-09%20%E6%8E%A8%E5%B9%BF-%20%E5%87%8F%E8%82%A5%EF%BC%9F%E8%80%81%E7%8C%AA%E7%BB%99%E4%BD%A0%E5%81%9A%E7%BA%BF%E4%B8%8A%E5%81%A5%E8%BA%AB%E7%A7%81%E6%95%99%EF%BC%81.html)
+
 [2021-05-07 兄弟刊 - 那熟悉的香味，是蓝色珊瑚沁人心脾（下）](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-05-07%20%E5%85%84%E5%BC%9F%E5%88%8A%20-%20%E9%82%A3%E7%86%9F%E6%82%89%E7%9A%84%E9%A6%99%E5%91%B3%EF%BC%8C%E6%98%AF%E8%93%9D%E8%89%B2%E7%8F%8A%E7%91%9A%E6%B2%81%E4%BA%BA%E5%BF%83%E8%84%BE%EF%BC%88%E4%B8%8B%EF%BC%89.html)
 
 [2021-04-30 项目推广- 【健身】滚蛋吧！身材焦虑！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-04-30%20%E9%A1%B9%E7%9B%AE%E6%8E%A8%E5%B9%BF-%20%E3%80%90%E5%81%A5%E8%BA%AB%E3%80%91%E6%BB%9A%E8%9B%8B%E5%90%A7%EF%BC%81%E8%BA%AB%E6%9D%90%E7%84%A6%E8%99%91%EF%BC%81.html)
@@ -318,7 +332,7 @@
 
 [2021-03-31 重磅发布- 兄弟盟新Logo携手全世界兄弟现身](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-03-31%20%E9%87%8D%E7%A3%85%E5%8F%91%E5%B8%83-%20%E5%85%84%E5%BC%9F%E7%9B%9F%E6%96%B0Logo%E6%90%BA%E6%89%8B%E5%85%A8%E4%B8%96%E7%95%8C%E5%85%84%E5%BC%9F%E7%8E%B0%E8%BA%AB.html)
 
-[ 2021-03-29 兄弟沙龙19 - 活动回顾：男人胸部不再丰满的秘密！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-03-29%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9919%20-%20%E6%B4%BB%E5%8A%A8%E5%9B%9E%E9%A1%BE%EF%BC%9A%E7%94%B7%E4%BA%BA%E8%83%B8%E9%83%A8%E4%B8%8D%E5%86%8D%E4%B8%B0%E6%BB%A1%E7%9A%84%E7%A7%98%E5%AF%86%EF%BC%81.html)
+[2021-03-29 兄弟沙龙19 - 活动回顾：男人胸部不再丰满的秘密！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-03-29%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9919%20-%20%E6%B4%BB%E5%8A%A8%E5%9B%9E%E9%A1%BE%EF%BC%9A%E7%94%B7%E4%BA%BA%E8%83%B8%E9%83%A8%E4%B8%8D%E5%86%8D%E4%B8%B0%E6%BB%A1%E7%9A%84%E7%A7%98%E5%AF%86%EF%BC%81.html)
 
 [2021-03-26 跨性别现身日短视频征集令](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-03-26%20%E8%B7%A8%E6%80%A7%E5%88%AB%E7%8E%B0%E8%BA%AB%E6%97%A5%E7%9F%AD%E8%A7%86%E9%A2%91%E5%BE%81%E9%9B%86%E4%BB%A4.html)
 
@@ -348,9 +362,10 @@
 
 [2021-02-03 兄弟盟猫哥上线｜让情绪有个出口](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-02-03%20%E5%85%84%E5%BC%9F%E7%9B%9F%E7%8C%AB%E5%93%A5%E4%B8%8A%E7%BA%BF%EF%BD%9C%E8%AE%A9%E6%83%85%E7%BB%AA%E6%9C%89%E4%B8%AA%E5%87%BA%E5%8F%A3%EF%BC%81.htm)
 
-[021-02-02 兄弟盟招募传播高手！走过路过不要错过！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-02-02%20%E5%85%84%E5%BC%9F%E7%9B%9F%E6%8B%9B%E5%8B%9F%E4%BC%A0%E6%92%AD%E9%AB%98%E6%89%8B%EF%BC%81%E8%B5%B0%E8%BF%87%E8%B7%AF%E8%BF%87%E4%B8%8D%E8%A6%81%E9%94%99%E8%BF%87%EF%BC%81.html)
+[2021-02-02 兄弟盟招募传播高手！走过路过不要错过！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-02-02%20%E5%85%84%E5%BC%9F%E7%9B%9F%E6%8B%9B%E5%8B%9F%E4%BC%A0%E6%92%AD%E9%AB%98%E6%89%8B%EF%BC%81%E8%B5%B0%E8%BF%87%E8%B7%AF%E8%BF%87%E4%B8%8D%E8%A6%81%E9%94%99%E8%BF%87%EF%BC%81.html)
 
 [2021-01-21 兄弟修容术盟](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-01-21%20%E5%85%84%E5%BC%9F%E4%BF%AE%E5%AE%B9%E6%9C%AF.html)
+
 [2021-01-20 传播推广-北京，跨性别者医疗需求全攻略！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-01-20%20%E4%BC%A0%E6%92%AD%E6%8E%A8%E5%B9%BF-%E5%8C%97%E4%BA%AC%EF%BC%8C%E8%B7%A8%E6%80%A7%E5%88%AB%E8%80%85%E5%8C%BB%E7%96%97%E9%9C%80%E6%B1%82%E5%85%A8%E6%94%BB%E7%95%A5%EF%BC%81.html)
 
 [2021-01-19 帮转 - 问卷调查：跨性别者的就业与医疗需求盟](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-01-19%20%E5%B8%AE%E8%BD%AC%20-%20%E9%97%AE%E5%8D%B7%E8%B0%83%E6%9F%A5%EF%BC%9A%E8%B7%A8%E6%80%A7%E5%88%AB%E8%80%85%E7%9A%84%E5%B0%B1%E4%B8%9A%E4%B8%8E%E5%8C%BB%E7%96%97%E9%9C%80%E6%B1%82.html)
@@ -378,7 +393,7 @@
 
 [2020-12-29 因疫情原因，“变装国王派对” 活动取消](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2020-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202020-12-29%20%E5%9B%A0%E7%96%AB%E6%83%85%E5%8E%9F%E5%9B%A0%EF%BC%8C%E2%80%9C%E5%8F%98%E8%A3%85%E5%9B%BD%E7%8E%8B%E6%B4%BE%E5%AF%B9%E2%80%9D%20%E6%B4%BB%E5%8A%A8%E5%8F%96%E6%B6%88.html)
 
-[ 2020-12-24 合作活动｜北京变装国王跨年PARTY，兄弟们来嗨！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2020-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202020-12-24%20%E5%90%88%E4%BD%9C%E6%B4%BB%E5%8A%A8%EF%BD%9C%E5%8C%97%E4%BA%AC%E5%8F%98%E8%A3%85%E5%9B%BD%E7%8E%8B%E8%B7%A8%E5%B9%B4PARTY%EF%BC%8C%E5%85%84%E5%BC%9F%E4%BB%AC%E6%9D%A5%E5%97%A8%EF%BC%81.html)
+[2020-12-24 合作活动｜北京变装国王跨年PARTY，兄弟们来嗨！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2020-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202020-12-24%20%E5%90%88%E4%BD%9C%E6%B4%BB%E5%8A%A8%EF%BD%9C%E5%8C%97%E4%BA%AC%E5%8F%98%E8%A3%85%E5%9B%BD%E7%8E%8B%E8%B7%A8%E5%B9%B4PARTY%EF%BC%8C%E5%85%84%E5%BC%9F%E4%BB%AC%E6%9D%A5%E5%97%A8%EF%BC%81.html)
 
 [2020-12-22 跨性别兄弟会大哥：我的梦想是花钱体验一场千刀万剐 - 天才职业](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2020-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202020-12-22%20%E8%B7%A8%E6%80%A7%E5%88%AB%E5%85%84%E5%BC%9F%E4%BC%9A%E5%A4%A7%E5%93%A5%EF%BC%9A%E6%88%91%E7%9A%84%E6%A2%A6%E6%83%B3%E6%98%AF%E8%8A%B1%E9%92%B1%E4%BD%93%E9%AA%8C%E4%B8%80%E5%9C%BA%E5%8D%83%E5%88%80%E4%B8%87%E5%89%90%20-%20%E5%A4%A9%E6%89%8D%E8%81%8C%E4%B8%9A055.html)
 
@@ -386,9 +401,9 @@
 
 [2020-12-15 变装国王PARTY，等你来赴约！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2020-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202020-12-15%20%E5%8F%98%E8%A3%85%E5%9B%BD%E7%8E%8BPARTY%EF%BC%8C%E7%AD%89%E4%BD%A0%E6%9D%A5%E8%B5%B4%E7%BA%A6%EF%BC%81.html)
 
-[ 2020-12-11 特刊-兄弟会改了名字？！飞天猫solo出道？！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2020-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202020-12-11%20%E7%89%B9%E5%88%8A-%E5%85%84%E5%BC%9F%E4%BC%9A%E6%94%B9%E4%BA%86%E5%90%8D%E5%AD%97%EF%BC%9F%EF%BC%81%E9%A3%9E%E5%A4%A9%E7%8C%ABsolo%E5%87%BA%E9%81%93%EF%BC%9F%EF%BC%81.html)
+[2020-12-11 特刊-兄弟会改了名字？！飞天猫solo出道？！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2020-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202020-12-11%20%E7%89%B9%E5%88%8A-%E5%85%84%E5%BC%9F%E4%BC%9A%E6%94%B9%E4%BA%86%E5%90%8D%E5%AD%97%EF%BC%9F%EF%BC%81%E9%A3%9E%E5%A4%A9%E7%8C%ABsolo%E5%87%BA%E9%81%93%EF%BC%9F%EF%BC%81.html)
 
-[ 2020-12-10 纪念日｜繁星影印夜空，指引前行之路](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2020-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202020-12-10%20%E7%BA%AA%E5%BF%B5%E6%97%A5%EF%BD%9C%E7%B9%81%E6%98%9F%E5%BD%B1%E5%8D%B0%E5%A4%9C%E7%A9%BA%EF%BC%8C%E6%8C%87%E5%BC%95%E5%89%8D%E8%A1%8C%E4%B9%8B%E8%B7%AF.html)
+[2020-12-10 纪念日｜繁星影印夜空，指引前行之路](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2020-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202020-12-10%20%E7%BA%AA%E5%BF%B5%E6%97%A5%EF%BD%9C%E7%B9%81%E6%98%9F%E5%BD%B1%E5%8D%B0%E5%A4%9C%E7%A9%BA%EF%BC%8C%E6%8C%87%E5%BC%95%E5%89%8D%E8%A1%8C%E4%B9%8B%E8%B7%AF.html)
 
 [2020-12-08 兄弟刊 - 我想拥有烈焰红唇，也想拥有肌肉胡渣](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2020-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202020-12-08%20%E5%85%84%E5%BC%9F%E5%88%8A%20-%20%E6%88%91%E6%83%B3%E6%8B%A5%E6%9C%89%E7%83%88%E7%84%B0%E7%BA%A2%E5%94%87%EF%BC%8C%E4%B9%9F%E6%83%B3%E6%8B%A5%E6%9C%89%E8%82%8C%E8%82%89%E8%83%A1%E6%B8%A3.html)
 
@@ -425,6 +440,7 @@
 [ 2020-12-05 兄弟沙龙14｜这么多兄弟网络视频在干嘛呢？](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2020-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202020-12-05%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9914%EF%BD%9C%E8%BF%99%E4%B9%88%E5%A4%9A%E5%85%84%E5%BC%9F%E7%BD%91%E7%BB%9C%E8%A7%86%E9%A2%91%E5%9C%A8%E5%B9%B2%E5%98%9B%E5%91%A2%EF%BC%9F.html)
 
 [2020-12-05 兄弟沙龙15-京城的兄弟现场面基，寒夜下的温暖](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2020-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202020-12-05%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9915-%E4%BA%AC%E5%9F%8E%E7%9A%84%E5%85%84%E5%BC%9F%E7%8E%B0%E5%9C%BA%E9%9D%A2%E5%9F%BA%EF%BC%8C%E5%AF%92%E5%A4%9C%E4%B8%8B%E7%9A%84%E6%B8%A9%E6%9A%96.html)
+
 [ 2020-12-03 兄弟沙龙1 - 全国第一个跨性别兄弟活动是啥样？](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2020-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202020-12-03%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%991%20-%20%E5%85%A8%E5%9B%BD%E7%AC%AC%E4%B8%80%E4%B8%AA%E8%B7%A8%E6%80%A7%E5%88%AB%E5%85%84%E5%BC%9F%E6%B4%BB%E5%8A%A8%E6%98%AF%E5%95%A5%E6%A0%B7%EF%BC%9F.html)
 
 [ 2020-12-03 兄弟沙龙10 -声音是一门技术，也是一门艺术](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2020-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202020-12-03%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9910%20-%E5%A3%B0%E9%9F%B3%E6%98%AF%E4%B8%80%E9%97%A8%E6%8A%80%E6%9C%AF%EF%BC%8C%E4%B9%9F%E6%98%AF%E4%B8%80%E9%97%A8%E8%89%BA%E6%9C%AF.html)
